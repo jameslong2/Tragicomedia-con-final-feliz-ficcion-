@@ -16,7 +16,7 @@ y me pudiste ver.<br>
 "De la oscuridad a la luz fui"<br>
 <br>
 "Con lengua adolorida"<br>
-"En mi pecho la luz escribi"<br>
+"En mi pecho tu luz escribi"<br>
 <br>
 Revivir una trágica historia,<br>
 fue de sabios,<br>
